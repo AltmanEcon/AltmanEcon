@@ -1,0 +1,3 @@
+- Daniel Altman, chief economist at Instawork
+- Using realtime data to share insights on the market for hourly paid labor
+- Subscribe to the Instawork Economic Research Newsletter here: https://hubs.li/Q012kZ--0
